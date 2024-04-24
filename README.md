@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @fijianfugufish
+- 👀 I’m interested in fijian fugu fishes
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 😄 Pronouns: him
+- ⚡ Fun fact: If you do not extract yourself from this room immediately I will cremate you.
