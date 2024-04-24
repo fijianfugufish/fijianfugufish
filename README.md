@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @fijianfugufish
 - 👀 I’m interested in fijian fugu fishes
-- 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 🌱 I’m currently learning how to cook fijian fugu fishes
+- 💞️ I’m looking to collaborate on the fijian fugu fish extermination program
+- 📫 How to reach me https://www.killallfijianfugufishes/fijianfugufish.org
 - 😄 Pronouns: him
 - ⚡ Fun fact: If you do not extract yourself from this room immediately I will cremate you.
